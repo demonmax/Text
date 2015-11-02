@@ -1,6 +1,7 @@
 Never too late
 ====
-mastery is not about prefection. It's a journey,a process.  
+>mastery is not about prefection. It's a journey,a process.  
+
 keep on ,output and receive feedback.  
 then you'll grown up rapidly.
 
